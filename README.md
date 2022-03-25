@@ -1,0 +1,1 @@
+# hayashizin.github.io
